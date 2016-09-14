@@ -1,2 +1,2 @@
-# bhanu
+# Micromax
 nothing like anything
